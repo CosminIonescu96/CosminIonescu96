@@ -7,7 +7,7 @@
 - 📫 How to reach me: ionescu_cosmin_1996@yahoo.com
 - 🖇 LinkedIn: https://www.linkedin.com/in/cosmin-davide-ionescu-8268b3218/
 - ⚡️ Fun fact: Java doesn't have any abbreviations. Java is rich aromatic coffee seed. ☕️ 
-- 🧊 Personal info: I love music ---  "Tables turn, bridges burn, you live and learn" - Pound Cake by 01000100 01110010 01100001 01101011 01100101
+- 🧊 Personal leak ---> I love music ---  "Tables turn, bridges burn, you live and learn" - Pound Cake by 01000100 01110010 01100001 01101011 01100101
 
 
 <h3 align="left">Languages and Tools:</h3>
