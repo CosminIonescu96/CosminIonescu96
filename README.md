@@ -2,7 +2,7 @@
 
 
 
-- 🚀 I’m currently working on becoming Java Backend Developer
+- 🚀 I’m currently working on becoming JS Developer
 - 🌱 I’m currently learning everything 😁
 - 📫 How to reach me: ionescu_cosmin_1996@yahoo.com
 - 🖇 LinkedIn: https://www.linkedin.com/in/cosmin-davide-ionescu-8268b3218/
